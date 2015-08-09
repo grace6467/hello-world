@@ -3,5 +3,5 @@
 
 Hi Humans! 
 
-Grace here, I like rainbows and lolipops!
+Grace here.
 
